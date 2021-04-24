@@ -1,4 +1,4 @@
-# Russian Union Wells Relative App
+# Russian Union Wells App
 
 Cutoff switches are used in a wide arrangement of conditions and applications considering their brutality, straightforwardness clearly of action, and unwavering quality of execution. 
 
